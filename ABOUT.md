@@ -3,7 +3,8 @@
 **SHATTERED W�RLDʼS PORTRAIT**
 =====
 
-# Disclaimer
+Disclaimer
+-----
 
 The **SHATTERED W�RLDʼS PORTRAIT** experiment is not affiliated with, related to, and does not intend to directly support, call out or make fun of any groups, communities or companies, whether fictional or real. Any resemblances to real-world material are to be taken as coincidental and/or not serious.
 
@@ -11,7 +12,8 @@ The **SHATTERED W�RLDʼS PORTRAIT** experiment was not created with profit or 
 
 ***COMMISSIONS AND DONATIONS WILL NEVER HAPPEN!*** Anyone claiming to represent us is almost certainly a scam or clout farm. We will not open a Ko-fi, Patreon, or any digital wallet for you to dump your money into. The [YouTube channel](https://www.youtube.com/@shattered_worlds_portrait) and [GitHub account](https://www.github.com/devoidingreality) are currently the only official public accounts.
 
-# Content Warnings
+Content Warnings
+-----
 
 The recommended minimum age largely depends on the material being viewed. Playable games are recommended for ages 13+, though parental guidance may be necessary. The experiment itself is recommended for ages 17+, with younger viewers strongly advised to have parental guidance. But there isn't really much we can do to stop you now, is there? Don't worry, *Little Timmy*. We won't tell dad.
 
@@ -23,7 +25,9 @@ This series WILL contain visual and auditory effects that may trigger certain co
 
 ***NO ONE IS FORCING YOU TO EXPERIENCE SHATTERED W�RLDʼS PORTRAIT!*** If you feel uncomfortable with anything described in this section, you are free not to view the related material.
 
-# Credits (May contain spoilers!)
+Credits (May contain spoilers!)
+-----
+
 ##### Note: Certain names will have their contact information attached through a hyperlink.
 
 Shxme. - **SHATTERED W�RLDʼS PORTRAIT** director, artist, scriptwriter
