@@ -30,9 +30,9 @@ Credits (May contain spoilers!)
 
 ##### Note: Certain names will have their contact information attached through a hyperlink.
 
-Shxme. - **SHATTERED W�RLDʼS PORTRAIT** director, artist, scriptwriter
-[Ms. R (from “relojac”)](mailto:relojac00057@gmail.com) - **SHATTERED W�RLDʼS PORTRAIT** co-director, musician
-[Mr. E (from “relojac”)](mailto:relojac00057@gmail.com) - musician
-??? - ???
+* Shxme. - **SHATTERED W�RLDʼS PORTRAIT** director, artist, scriptwriter
+* [Ms. R (from “relojac”)](mailto:relojac00057@gmail.com) - **SHATTERED W�RLDʼS PORTRAIT** co-director, musician
+* [Mr. E (from “relojac”)](mailto:relojac00057@gmail.com) - musician
+* ??? - ???
 
 ##### Footnote: hello pook there are ogspores in you're throat/ top 57 ogscule  :33333
