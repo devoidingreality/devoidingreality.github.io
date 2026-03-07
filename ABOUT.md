@@ -30,9 +30,13 @@ Credits (May contain spoilers!)
 
 ##### Note: Certain names will have their contact information attached through a hyperlink.
 
-* [Shxme...?](https://namemc.com/profile/ShxmeTranquility.1) - **SHATTERED W�RLDʼS PORTRAIT** director, artist, scriptwriter. Any questions can be asked in Minecraft. Yeah bro just find me in Minecraft maybe you'll meet me in a server
-* [Ms. R (from “relojac”)](mailto:relojac00057@gmail.com) - **SHATTERED W�RLDʼS PORTRAIT** Co-director, composer. Emails only.
+* [Shxme...?](https://namemc.com/profile/ShxmeTranquility.1) - **SHATTERED W�RLDʼS PORTRAIT** creator & director, artist, story. Any questions can be asked in Minecraft. Yeah bro just find me in Minecraft maybe you'll meet me in a server
+* [Ms. R (from “relojac”)](mailto:relojac00057@gmail.com) - **SHATTERED W�RLDʼS PORTRAIT** co-director, composer, voice actress for **Unrevealed Character**. Emails only.
 * [Mr. E (from “relojac”)](mailto:relojac00057@gmail.com) - Guest composer. Emails only.
+* [The Verboten One] - Who knows what they did
 * ??? - ???
+
+
+* [The Broken Script](https://modrinth.com/mod/the-broken-script) team, L0V3M1ST - Not directly affiliated with us, but certain Soundtrack tracks are covers, remixes or include motifs from this mod.
 
 ##### Footnote: hello pook there are ogspores in you're throat/ top 57 ogscule  :33333
