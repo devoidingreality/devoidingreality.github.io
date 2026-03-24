@@ -30,7 +30,7 @@ Credits (May contain spoilers!)
 
 ##### Note: Certain names will have their contact information attached through a hyperlink.
 
-* [Shxme](https://namemc.com/profile/ShxmeTranquility.1) - **SHATTERED W�RLDʼS PORTRAIT** creator & director, artist, story. Find me.
+* [Shxme](https://namemc.com/profile/ShxmeFlos.1) - **SHATTERED W�RLDʼS PORTRAIT** creator & director, artist, story. Find me.
 * [Ms. R (from “relojac”)](mailto:relojac00057@gmail.com) - **SHATTERED W�RLDʼS PORTRAIT** co-director, composer, voice actress for **Unrevealed Character**. Emails only.
 * [Mr. E (from “relojac”)](mailto:relojac00057@gmail.com) - Guest composer. Emails only.
 * [Ms. L (from “relojac”)](mailto:relojac00057@gmail.com) - Guest composer. Emails only.
