@@ -10,14 +10,14 @@ The **SHATTERED W�RLDʼS PORTRAIT** experiment is not affiliated with, related
 
 The **SHATTERED W�RLDʼS PORTRAIT** experiment was not created with profit or clout in mind. The project is purely driven by passion, and therefore will not be monetized with advertisements or donations. Any advertisements you see now are completely YouTube's doing, and we have little to no control over them.
 
-***COMMISSIONS AND DONATIONS WILL NEVER HAPPEN!*** Anyone claiming to represent us is almost certainly a scam or clout farm. We will not open a Ko-fi, Patreon, or any digital wallet for you to dump your money into. The [YouTube channel](https://www.youtube.com/@shattered_worlds_portrait) and [GitHub account](https://www.github.com/devoidingreality) are currently the only official public accounts.
+***COMMISSIONS AND DONATIONS WILL NEVER HAPPEN!*** Anyone else claiming to represent us is almost certainly running some kind of scam or clout farm. We will not open a Ko-fi, Patreon, or any digital wallet for you to dump your money into. [This](https://www.youtube.com/@shattered_worlds_portrait) is the only official social media account, disregarding Discord, Roblox, GitHub, etc.
 
 Content Warnings
 -----
 
 The recommended minimum age largely depends on the material being viewed. Playable games are recommended for ages 13+, though parental guidance may be necessary. The experiment itself is recommended for ages 17+, with younger viewers strongly advised to have parental guidance. But there isn't really much we can do to stop you now, is there? Don't worry, *Little Timmy*. We won't tell dad.
 
-**SHATTERED W�RLDʼS PORTRAIT** may contain themes that may be considered disturbing to some, such as depictions of suicide, substance use, and religion/cults. It is not made to mock those experiencing a similar situation. If you are part of that group, please seek help. You are loved.
+**SHATTERED W�RLDʼS PORTRAIT** may contain themes that may be considered disturbing to some, such as depictions of suicide, substance use/abuse, and religion/cults. It is not made to mock those experiencing a similar situation. If you are part of that group, please seek help. You are loved.
 
 Videos and images related to **SHATTERED W�RLDʼS PORTRAIT** may also contain disturbing imagery, including fake blood & gore.
 
@@ -30,7 +30,7 @@ Credits (May contain spoilers!)
 
 ##### Note: Certain names will have their contact information attached through a hyperlink.
 
-* [Shxme](https://namemc.com/profile/ShxmeFlos.1) - **SHATTERED W�RLDʼS PORTRAIT** creator & director, artist, story. Find me.
+* [Shxme](https://namemc.com/profile/ShxmeFlos.1) - **SHATTERED W�RLDʼS PORTRAIT** creator & director, artist, story. Find me. On Minecraft. If you can't find me on Minecraft then womp womp.
 * [Ms. R (from “relojac”)](mailto:relojac00057@gmail.com) - **SHATTERED W�RLDʼS PORTRAIT** co-director, composer, voice actress for **Unrevealed Character**. Emails only.
 * [Mr. E (from “relojac”)](mailto:relojac00057@gmail.com) - Guest composer. Emails only.
 * [Ms. L (from “relojac”)](mailto:relojac00057@gmail.com) - Guest composer. Emails only.
@@ -38,6 +38,6 @@ Credits (May contain spoilers!)
 * ??? - ???
 
 
-* [The Broken Script](https://modrinth.com/mod/the-broken-script) team, L0V3M1ST - Not directly affiliated with us, but certain Soundtrack tracks are covers, remixes or include motifs from this mod.
+* [The Broken Script](https://modrinth.com/mod/the-broken-script) team, L0V3M1ST - Not directly affiliated with us, but certain tracks in **A Splintered Universe's Aria** are covers, remixes or include motifs from this mod.
 
 ##### Footnote: hello pook there are ogspores in you're throat/ top 57 ogscule  :33333
