@@ -1,6 +1,6 @@
 ###### Addendum: Nothing in this document is canonical, and therefore will not be significant to the events, timeline and/or story of the reality of **SHATTERED W�RLDʼS PORTRAIT**, nor should it be treated as such. Anything in this document is subject to change.
 
-**SHATTERED W�RLDʼS PORTRAIT**
+**SHATTERED W�RLDʼS PORTRAIT (THE SPWNERS, spawn, etc.)**
 =====
 
 Disclaimer
@@ -30,7 +30,7 @@ Credits (May contain spoilers!)
 
 ##### Note: Certain names will have their contact information attached through a hyperlink.
 
-* [Shxme](https://namemc.com/profile/ShxmeFlos.1) - **SHATTERED W�RLDʼS PORTRAIT** creator & director, artist, story. Find me. On Minecraft. If you can't find me on Minecraft then womp womp.
+* [Shxme](https://namemc.com/profile/ShxmeFloris.1) - **SHATTERED W�RLDʼS PORTRAIT** creator & director, artist, story. Find me. On Minecraft. If you can't find me on Minecraft then womp womp.
 * [Ms. R (from “relojac”)](mailto:relojac00057@gmail.com) - **SHATTERED W�RLDʼS PORTRAIT** co-director, composer, voice actress for **Unrevealed Character**. Emails only.
 * [Mr. E (from “relojac”)](mailto:relojac00057@gmail.com) - Guest composer. Emails only.
 * [Ms. L (from “relojac”)](mailto:relojac00057@gmail.com) - Guest composer. Emails only.
@@ -39,5 +39,7 @@ Credits (May contain spoilers!)
 
 
 * [The Broken Script](https://modrinth.com/mod/the-broken-script) team, L0V3M1ST - Not directly affiliated with us, but certain tracks in **A Splintered Universe's Aria** are covers, remixes or include motifs from this mod.
+* Toby Fox, 8-4 - **DELTARUNE**, **Undertale**, etc.
+* Andrew Hussie - **MSPaint Adventures**, **Homestuck**
 
 ##### Footnote: hello pook there are ogspores in you're throat/ top 57 ogscule  :33333
