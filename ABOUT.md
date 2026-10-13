@@ -38,7 +38,7 @@ Credits (May contain spoilers!)
 * ??? - ???
 
 
-* [The Broken Script](https://modrinth.com/mod/the-broken-script) team, L0V3M1ST - Not directly affiliated with us, but certain tracks in **A Splintered Universe's Aria** are covers, remixes or include motifs from this mod.
+* [The Broken Script](https://modrinth.com/mod/the-broken-script) team - Not directly affiliated with us, but certain tracks in **A Splintered Universe's Aria** are covers, remixes or include motifs from this mod.
 * Toby Fox, 8-4 - **DELTARUNE**, **Undertale**, etc.
 * Andrew Hussie - **MSPaint Adventures**, **Homestuck**
 
